@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VictorVaglieri
+- 👀 I’m interested on YOU <3
+- 🌱 I’m currently learning everything
